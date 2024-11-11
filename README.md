@@ -22,3 +22,10 @@ konexio rh ?
 a votre rythme ?
 Alex peut se déplacer chez vous ?
 loyatho ? pallatier ?
+
+en visio ?
+
+ spécialiste en bilan de compétences depuis plus de 5 ans, vous accompagne dans vos projets 
+professionnels en vous aidant à mieux comprendre vos forces, vos aspirations et à définir des objectifs 
+de carrière clairs et motivants. Grâce à son expérience dans les ressources humaines au sein de grandes 
+entreprises multinationales et sa formation en psychologie,
